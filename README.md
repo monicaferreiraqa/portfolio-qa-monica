@@ -1,6 +1,5 @@
 # Portfólio | Mônica Suely Ferreira Beserra
-
-📱 (81) 9 8266-8296  
+ 
 ✉️ monicaferreiraqa@gmail.com  
 
 ---
